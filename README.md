@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **arinsunam05@gmail.com**
 
-- ⚡ Fun fact **I love momo**
+- ⚡ Fun fact **Serial Experiments Lain**
 
 
 
