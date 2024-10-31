@@ -9,7 +9,7 @@
 
 - ⚡ Fun fact **Serial Experiments Lain**
 
-- ![](https://komarev.com/ghpvc/?username=ArinSunam
+
 
 
 
